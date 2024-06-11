@@ -1,6 +1,6 @@
 # Hi there.  
-Welcome! :thumbsup:  
-## I'm into electronics, video make/editing :movie_camera: and coding stuffs :computer:.
+Welcome! :thumbsup: ☕
+## I'm into automation, robotics, electronics, video make/editing :movie_camera: and coding stuffs :computer:.
 
                                                                                       
                                                                             .-++.  
